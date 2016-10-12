@@ -6,3 +6,7 @@ Step 4: Take my styling product, rubbing it through my fingers thoroughly, and t
 Step 5: Take a comb and shaping my hair into a better shape.
 Step 6: Reapply styling product if needed.
 Step 7: Let it set and get on with my day.
+
+My hairstyle is mess
+Step 1: Shower>Apply Shampoo>Rinse>Dry off
+Step 2: Casually brush to the side with your hand through out the day
